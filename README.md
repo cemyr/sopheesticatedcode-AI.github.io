@@ -1,1 +1,1 @@
-# sopheesticatedcode-AI.github.io
+# sopheesticoder-AI.github.io
